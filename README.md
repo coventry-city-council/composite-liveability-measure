@@ -20,4 +20,4 @@ An ideal place to live is one where basic needs for housing, employment, educati
 
 The ‘ideal type’ is transformed into ten domains – five of which were related to basic needs (thematic domains) and five related to the way these needs might be met (cross-cutting domains). Indicators were picked with specialists working in each field, on the basis that they were available at the local authority level; up-to-date; and clearly directional.
 
-Find out more:  www.coventry.gov.uk/cclm/
+Find out more:  www.coventry.gov.uk/performance-1/comprehensive-composite-liveability-measure
